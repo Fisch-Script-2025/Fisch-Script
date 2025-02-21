@@ -10,7 +10,6 @@
 
 ![maxresdefault](https://github.com/user-attachments/assets/e6ec7ada-7083-45d4-a035-8933f7214f2d)
 
-Here's an SEO-optimized **GitHub README** for **Fisch Script Roblox** with rich text formatting for better visibility on Google and GitHub.  
 
 ---
 
